@@ -1,2 +1,0 @@
-# AmritKumarGiri.github.io
-Profile
